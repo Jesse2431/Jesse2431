@@ -15,5 +15,7 @@ I'm currently working on Driver Reseen. It's basically Driver San Francisco Wii,
 ## Contact
 
 You can reach me on Discord and Twitter:
+
 @Jesse#3869 on Discord
+
 @jesse2431_ on Twitter (I would recommend contacting me on Discord, my response will be faster!
